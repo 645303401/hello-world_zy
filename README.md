@@ -6,4 +6,4 @@ The end.
 
 3years later ,  i add some infomation in it in U.S.A. . Hope i can learn it well
 
-this is my firt time to visit america . tomorrow i will drive to th chicago . good luck to me
+this is my firt time to visit america . tomorrow i will drive to th chicago . good luck to me.haha
